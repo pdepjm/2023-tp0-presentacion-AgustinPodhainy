@@ -14,6 +14,7 @@ ___
 - No me suelo enganchar con series/películas pero escucho recomendaciones
 ___
 Dejo una foto de cuando no tenía que cursar de lunes a sábados
-![WhatsApp Image 2023-03-31 at 21 24 58](https://user-images.githubusercontent.com/129459356/229257923-95082cfc-4b8c-4e99-b5d9-bb9ad2ffe4b5.jpeg)
+
+![WhatsApp Image 2023-03-31 at 21 24 58](https://user-images.githubusercontent.com/129459356/229258509-887a4046-e42d-4a84-af47-59c29b27e0b4.jpg)
 
 
